@@ -9,8 +9,6 @@
 
 - 📫 How to reach me **sahilp3036@gmail.com**
 
-<img align="right" alt="coding" width="400" src="![image](https://github.com/SahilPathan3036/SahilPathan3036/assets/153537294/6243c85d-74db-40c5-be69-8036407d8e58)
-">
 
 
 <h3 align="left">Connect with me:</h3>
